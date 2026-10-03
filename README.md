@@ -1,4 +1,4 @@
-<img alt="˚˖𓍢ִ໋🐇˚" src="https://hits.sh/github.com/haidaware/hits.svg?color=64bcbc"/>
+<p align="center"> <a href="https://hits.sh/github.com/izulation/"><img alt="Hits" src="https://hits.sh/github.com/izulation.svg?label=%CB%9A%CB%96%F0%93%8D%A2%D6%B4%E0%BB%8B%F0%9F%90%87%CB%9A&color=64bcbc"/></a> </p>
 
 <p align="center">꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷</p>
 <p align="center">𝐢𝐳𝐮 / 𝐯𝐢𝐞 ,, 𝐮𝐬𝐮𝐚𝐥𝐥𝐲 𝐰𝐨𝐧𝐭 𝐢𝐧𝐭 𝐟𝐢𝐫𝐬𝐭, 𝐬𝐨𝐫𝐫𝐲 !</p>
