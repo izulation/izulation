@@ -3,7 +3,7 @@
 <p align="center">꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷</p>
 <p align="center">𝐢𝐳𝐮 / 𝐯𝐢𝐞 ,, 𝐮𝐬𝐮𝐚𝐥𝐥𝐲 𝐰𝐨𝐧𝐭 𝐢𝐧𝐭 𝐟𝐢𝐫𝐬𝐭, 𝐬𝐨𝐫𝐫𝐲 !</p>
 <p align="center">𝐜 + 𝐡 ,, 𝐰𝟐𝐢 𝐛𝐞𝐜𝐚𝐮𝐬𝐞 𝐢𝐦 𝐨𝐟𝐟𝐭𝐚𝐛 𝐬𝐨𝐦𝐞𝐭𝐢𝐦𝐞𝐬 ,, 𝐢 𝐥𝐢𝐤𝐞 𝐜𝐮𝐝𝐝𝐥𝐞𝐬 ! ,, 𝐬𝐞𝐦𝐢 𝐚𝐜𝐭𝐢𝐯𝐞 𝐛𝐜𝐬 𝐨𝐟 𝐬𝐜𝐡𝐨𝐨𝐥</p>
-<p align="center">𝐰𝐚𝐥𝐥𝐚𝐡𝐢 𝐲𝐨𝐮 𝐡𝐚𝐯𝐞 𝐧𝐨 𝐠𝐢𝐦𝐦𝐢𝐜𝐤𝐬... 𝐝𝐨 𝐦𝐲 𝐠𝐢𝐦𝐦𝐢𝐜𝐤𝐬 𝐲𝐚'𝐥𝐥 <𝟑</p>
+<p align="center"><a href="https://izulation.atabook.org/">𝐚𝐭𝐚</a> <𝟑 </p>
 <p align="center">꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷</p>
 <p align="center">
   <img width="800" height="800" src="f96d3d7e478accb67e1f82a38dbe2be5.gif">
