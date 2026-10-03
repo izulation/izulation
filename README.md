@@ -1,4 +1,4 @@
-
+<img alt="˚˖𓍢ִ໋🐇˚" src="https://hits.sh/github.com/haidaware/hits.svg?color=64bcbc"/>
 
 <p align="center">꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷</p>
 <p align="center">𝐢𝐳𝐮 / 𝐯𝐢𝐞 ,, 𝐮𝐬𝐮𝐚𝐥𝐥𝐲 𝐰𝐨𝐧𝐭 𝐢𝐧𝐭 𝐟𝐢𝐫𝐬𝐭, 𝐬𝐨𝐫𝐫𝐲 !</p>
